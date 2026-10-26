@@ -1,2 +1,2 @@
-# exyutvchannels
+# exyutvchannellogos
 TV CHANNEL LOGOS - IPTV
